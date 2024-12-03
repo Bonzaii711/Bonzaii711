@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on developing stuff
 - 📫 How to reach me ... just don't
 - 😄 Pronouns: oy vey
-- ⚡ Fun fact: i've vacationed in Michael Jordan'# Summer Home
+- ⚡ Fun fact: i've vacationed in Michael Jordan's Summer Home
 
 <!---
 Bonzaii711/Bonzaii711 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
